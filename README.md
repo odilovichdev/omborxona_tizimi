@@ -1,0 +1,1 @@
+# omborxona_tizimi
